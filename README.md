@@ -1,0 +1,1 @@
+# bersyukur99palinganyar
